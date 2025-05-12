@@ -3,7 +3,7 @@
 📚 Undergraduate CE @ AUT<br>
 🌱 I’m currently learning Go!<br>
 ❤️ Tifosi🏎&emsp;Rossonero⚽&emsp;A.Morgan🤠<br>
-⚡ Fun fact: Sir Lewis Hamilton is a 🐐<br>
+⚡ Sir Lewis Carl Davidson Hamilton 🐐<br>
 🎒 Trying to learn new things every day<br><br>
 💍 I design [these](https://www.instagram.com/kalakijewelry) in my free time :))<br><br><br>
 📫 How to reach me:<br>&emsp;&emsp;👉 amir.kalaki@aut.ac.ir<br>&emsp;&emsp;👉 amirmkalaki@gmail.com<br><br><br><br>
